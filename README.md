@@ -1,4 +1,4 @@
-## I STOLE EVERYTHING FROM [SoNothingMC](https://github.com/sonothingmc)
+## I STOLE EVERYTHING FROM [SoNothingMC](https://github.com/sonothingmc), ALL CREDIT GOES TO HIM
 
 # [rat.alffakisu.monster](rat.alffakisu.monster)
 (will probs try to snipe bigrat.monster)
