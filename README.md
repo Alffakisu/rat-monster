@@ -1,6 +1,6 @@
 ## I STOLE EVERYTHING FROM [SoNothingMC](https://github.com/sonothingmc)
 
-# [rat.alffakisu.monster]
+# [rat.alffakisu.monster](rat.alffakisu.monster)
 (will probs try to snipe bigrat.monster)
 a picture of big rat
 
